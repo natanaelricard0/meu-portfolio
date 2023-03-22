@@ -1,1 +1,1 @@
-Seja bem vindo (a) ao meu portfolio!
+Seja bem vind@ ao meu portfolio!
